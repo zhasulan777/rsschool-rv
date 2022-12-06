@@ -1,3 +1,3 @@
-#Zhas
+#Zhasik
 
-#Vk
+#Vk, Telegram
